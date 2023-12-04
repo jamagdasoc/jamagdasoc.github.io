@@ -16,13 +16,19 @@ During their early performances, the line "Di mo man lang napapansin ang bagong 
 
 # 𝘾𝙤𝙫𝙚𝙧 𝙫𝙚𝙧𝙨𝙞𝙤𝙣𝙨
 
+![Facade](https://upload.wikimedia.org/wikipedia/en/d/da/Ultraelectromagneticjamcover.jpg)
+
 In 2005, Ligaya was covered by Kitchie Nadal for the tribute album Ultraelectromagneticjam!: The Music Of The Eraserheads, and by Mayonnaise for The Reunion: An Eraserheads Tribute Album in 2012.
 
 In other media
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5qFfS4Azio?si=9lg7V77IgSWOXLfB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 Ligaya was used in a TV ad to promote Chippy in 1996. As with other Eraserheads songs, Ligaya is also featured in the Ang Huling El Bimbo musical.
 
 # 𝙇𝙮𝙧𝙞𝙘𝙨
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fTi4FA_8ZYA?si=7aiLG38Hb_Mlapvr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 Ilang awit pa ba ang aawitin, o giliw ko?
 Ilang ulit pa ba ang uulitin, o giliw ko?
