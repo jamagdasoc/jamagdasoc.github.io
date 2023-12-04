@@ -4,6 +4,8 @@ Joel Angelo M. Magdasoc
 
 # "Ligaya" of Eraserheads, one of my favorite songs.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/z69SUwuucHQ?si=wC_zkdgp6sp5Xy5M&amp;start=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 # 𝘾𝙤𝙢𝙥𝙤𝙨𝙞𝙩𝙞𝙤𝙣
 
 ![Facade](https://media.philstar.com/photos/2022/12/10/ent3-1_2022-12-10_16-20-54.jpg)
