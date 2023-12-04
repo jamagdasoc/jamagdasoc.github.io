@@ -20,7 +20,7 @@ During their early performances, the line "Di mo man lang napapansin ang bagong 
 
 In 2005, Ligaya was covered by Kitchie Nadal for the tribute album Ultraelectromagneticjam!: The Music Of The Eraserheads, and by Mayonnaise for The Reunion: An Eraserheads Tribute Album in 2012.
 
-In other media
+# 𝙄𝙣 𝙤𝙩𝙝𝙚𝙧 𝙢𝙚𝙙𝙞𝙖
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/j5qFfS4Azio?si=9lg7V77IgSWOXLfB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
